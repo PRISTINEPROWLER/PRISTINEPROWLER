@@ -1,1 +1,1 @@
-![divider](https://imgur.com/StY98ZK.png)
+![image](https://imgur.com/1DkWxCT.png)
